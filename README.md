@@ -1,7 +1,5 @@
 ### Download HWID Spoofer:
 
-## [DOWNLOAD LINK](vladmigunov.com)
-
 🌟 HWID Spoofer: Bypass hardware bans and get back in the game! 🎮💻
 
 #### What is HWID Spoofer?
